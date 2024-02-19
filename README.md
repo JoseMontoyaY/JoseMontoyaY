@@ -12,4 +12,4 @@ I'm exploring opportunities to leverage my skills in a dynamic, forward-thinking
 If you're looking for a dedicated and versatile Full Stack Developer to join your team, I'd be excited to discuss how my skills and passions align with your needs. Please don't hesitate to reach out to me.
 
 📧 josemontoya07@hotmail.com
-💻 [Connect with me on LinkedIn](https://www.linkedin.com/in/jose-miguel-montoya-84122b251/)
+💻 [LinkedIn](https://www.linkedin.com/in/jose-miguel-montoya-84122b251/)
